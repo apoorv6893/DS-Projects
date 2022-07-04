@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @apoorv6893
+- 👀 I’m interested in Product Management
+- 🌱 I’m currently Pursuing MBA from IIM Kozhikode
+- 📫 How to reach me ...
